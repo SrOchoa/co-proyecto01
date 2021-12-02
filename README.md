@@ -1,2 +1,2 @@
 # co-proyecto01
-buenas 
+buenas gente
